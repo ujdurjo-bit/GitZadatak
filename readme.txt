@@ -1,0 +1,1 @@
+Josip Ujdur - tekst po želji ;)
